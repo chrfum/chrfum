@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Christian 👋
 
 - Computer Science student at the University of Milan 🤟🏼
 
